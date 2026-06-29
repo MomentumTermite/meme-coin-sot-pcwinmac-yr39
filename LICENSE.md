@@ -1,4 +1,4 @@
-# 
+# Premium meme coin sniper bot complementos para Mac OS | Último meme coin sniper bot complementos para PC Windows. Con detección de impuesto de compra y órdenes de mercado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
